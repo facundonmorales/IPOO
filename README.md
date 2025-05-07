@@ -1,4 +1,2 @@
 
-No llegue a terminar :(
-
-IGNORAR LA CARPETA DEL PRIMER PARCIAL
+No llegue a terminar el testFinanciera :/
