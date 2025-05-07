@@ -1,1 +1,4 @@
+
 No llegue a terminar :(
+
+IGNORAR LA CARPETA DEL PRIMER PARCIAL
